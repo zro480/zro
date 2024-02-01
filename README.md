@@ -3,7 +3,4 @@ c
 dfcdsfdwew
 ZXZXssasdsa
 xsdffvbdbfd
-sdaffswfwefew
-ghfhtfhdt
-vnmchncnc
-jjchjgfxhgf
+sdaffswfwef
