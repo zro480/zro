@@ -1,10 +1,5 @@
 dsadsadwddsz
 c
 dfcdsfdwew
-ZXZXs
-gsr
-yrsggrs
-tyysthdrg
+Z
 
-srdgrgttr
-lujdj
